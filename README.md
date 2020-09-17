@@ -25,5 +25,5 @@ A complete explanation of the experiment can be found [at fronkonstin](https://f
 
 ## Authors
 
-* **Antonio Sánchez Chinchón** - [@aschinchon](https://twitter.com/aschinchon)
+* **SharathKrsm: (https://www.linkedin.com/in/sharath-k-315982121/)
 
